@@ -4,7 +4,7 @@ Muitas sociedades de macacos cresceram desde quando César levou seu povo a um o
 
 ![](https://media1.tenor.com/m/oA9uNV2MM4sAAAAd/monkey.gif)
 
+Gru dá as boas-vindas a um novo membro da família, Gru Jr., que pretende atormentar seu pai. No entanto, sua existência pacífica logo desmorona quando um mentor do crime escapa da prisão e jura vingança contra Gru.
 
-
-
+![](https://media1.tenor.com/m/BRbVp-tigBEAAAAC/gru-despicable-me.gif)
 

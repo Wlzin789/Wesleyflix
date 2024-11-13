@@ -8,3 +8,7 @@ Gru dá as boas-vindas a um novo membro da família, Gru Jr., que pretende atorm
 
 ![](https://media1.tenor.com/m/BRbVp-tigBEAAAAC/gru-despicable-me.gif)
 
+IMORTAL
+Depois de uma tentativa de assassinato, Aaron descobre que está protegido sob uma maldição que o impede de morrer sem sua família. Ele tenta o suicídio, mas todas as tentativas são frustradas. Ele, então, entra numa jornada em busca de respostas.
+
+![](https://tenor.com/pt-BR/view/scorpion-scorpion-stare-mystery-stare-terrifying-stare-staring-dark-gif-1293034790604024575)
